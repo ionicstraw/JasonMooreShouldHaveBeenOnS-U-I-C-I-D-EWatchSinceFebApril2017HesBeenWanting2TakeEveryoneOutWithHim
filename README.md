@@ -6,4 +6,4 @@ i think this truly and accurately describes the violence that hes imposed on oth
 
 i dont think he thinks very highly of himself, i think he has serious self-confidence issues and i believe he really doesnt have a lot to live for
 
-(fking weird tho, i will say that)
+(fking weird tho, i will say that ... its not funny, but it is kind of funny im trying not to laugh the more i think about it 🤭 this man's life sounds so pathetic)
