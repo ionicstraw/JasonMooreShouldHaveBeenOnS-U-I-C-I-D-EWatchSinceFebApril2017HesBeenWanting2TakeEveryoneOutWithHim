@@ -9,3 +9,5 @@ i dont think he thinks very highly of himself, i think he has serious self-confi
 (fking weird tho, i will say that ... its not funny, but it is kind of funny im trying not to laugh the more i think about it 🤭 this man's life sounds so pathetic)
 
 im still trying not to laugh at this, i know its really sad and serious but still i cant help myself
+
+think of the life he got to look forward to ... that he's living now ... the one where he edits his own wikipedia page (and the edits are related to me and you) and follows random people on twitter/bluesky so they follow him to bring up his loser follower count rotfl, what a life, what a complete whacko, what a complete fking loser
