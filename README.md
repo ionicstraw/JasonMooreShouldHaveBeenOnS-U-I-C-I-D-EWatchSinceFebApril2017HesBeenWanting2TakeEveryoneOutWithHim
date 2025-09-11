@@ -1,5 +1,7 @@
 # JasonMooreShouldHaveBeenOnS-U-I-C-I-D-EWatchSinceFebApril2017HesBeenWanting2TakeEveryoneOutWithHim
 
+![img](the-contents-of-this-post-are-not-related-to-the-title-of-this-repos_not-at-all_its-just-funny_the-post-that-is.png)
+
 i dont think theres anything wrong with saying it as i see it, as ive seen it
 
 i think this truly and accurately describes the violence that hes imposed on others including myself 
