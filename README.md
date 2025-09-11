@@ -11,3 +11,5 @@ i dont think he thinks very highly of himself, i think he has serious self-confi
 im still trying not to laugh at this, i know its really sad and serious but still i cant help myself
 
 think of the life he got to look forward to ... that he's living now ... the one where he edits his own wikipedia page (and the edits are related to me and you) and follows random people on twitter/bluesky so they follow him to bring up his loser follower count rotfl, what a life, what a complete whacko, what a complete fking loser
+
+when i looked at his bluesky earlier, it clearly looks like hes in some mental decline ... he also must shower like once a week -- weird stuff, weird whats out there, and i should add emphasis to the fact that i dont know him, i talked to him like twice and thats it, weird weird weird
