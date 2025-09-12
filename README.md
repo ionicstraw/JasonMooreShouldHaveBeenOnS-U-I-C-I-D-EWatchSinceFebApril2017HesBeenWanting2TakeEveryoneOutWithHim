@@ -1,6 +1,9 @@
 # JasonMooreShouldHaveBeenOnS-U-I-C-I-D-EWatchSinceFebApril2017HesBeenWanting2TakeEveryoneOutWithHim
 
 ![img](the-contents-of-this-post-are-not-related-to-the-title-of-this-repos_not-at-all_its-just-funny_the-post-that-is.png)
+![img](the-contents-of-this-post-are-not-related-to-the-title-of-this-repos_not-at-all_its-just-funny_the-post-that-is-pt2.png)
+
+
 
 i dont think theres anything wrong with saying it as i see it, as ive seen it
 
